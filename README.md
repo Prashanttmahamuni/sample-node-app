@@ -1,5 +1,1 @@
 # sample-node-file
-            
-                                                                                                                                                            
-                                                
-                                                
